@@ -1,4 +1,4 @@
-## Wat is deze Website
+## Wat is deze Website?
 Deze website informeert mensen over wat ik afgelopen zomer heb gedaan en waar ik de zomer heb doorbracht. Je kan ook foto's zien van de plekken waar ik ben geweest of waar ik mijn zomer heb doorbracht.
 ## Waarvoor dient deze website?
 Deze website dient om me zelf voor te stellen aan mensen die geïntreseerd zijn om mij te leren kennen. Ik heb deze website gemaakt zodat ik niet elke keer mijn woorden moet herhalen maar zodat mensen snel kunnen zien wie ik ben en wat ik afgelopen zomer heb gedaan.
